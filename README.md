@@ -9,5 +9,5 @@
 [🇷 ØΜΔŇŦIĆ❤️ 🇸 ĦΔ¥ΔŘ 🇹 ỮŞĦΔŘ](https://t.me/Tushar204)
 
 - 😇 About me :-
-[「ƬƲֆӇƛƦ ✘ ԼƠꪜЄԼƳ」🇮🇳](t.me/ABOUTVEDMAT)
+[「ƬƲֆӇƛƦ ✘ ԼƠꪜЄԼƳ」🇮🇳](https://t.me/ABOUTVEDMAT)
 
