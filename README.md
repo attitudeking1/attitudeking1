@@ -1,8 +1,6 @@
 ### Hi there 👋
 
 <!--
-### Hi there 👋
-
 ## About Me
 - 🔭 I’m Tushar currently working on Bots
 - 🌱 Learning - Python 
