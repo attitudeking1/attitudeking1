@@ -6,10 +6,10 @@
 - 🌱 Learning - Python 
 - 👯 Finding Developers for Lovely Team
 - 🤔 My Telegram Account :-
-[🇷 ØΜΔŇŦIĆ❤️ 🇸 ĦΔ¥ΔŘ 🇹 ỮŞĦΔŘ](https://t.me/Tushar204)
+[Tushar 🇮🇳](https://t.me/Tushar204)
 
 - 😇 About me :-
-[「ƬƲֆӇƛƦ ✘ ԼƠꪜЄԼƳ」🇮🇳](https://t.me/ABOUTVEDMAT)
+[About Tushar🇮🇳](https://t.me/ABOUTVEDMAT)
 
 
 ![Profile views](https://komarev.com/ghpvc/?username=attitudeking1&color=blue&style=flat-square&label=Profile+Views)
